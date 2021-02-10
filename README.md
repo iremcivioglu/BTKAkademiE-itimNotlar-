@@ -1,1 +1,1 @@
-# BTKAkademiE-itimNotlar-
+# BTK Akademi Eğitim Notları
